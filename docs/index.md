@@ -1,7 +1,11 @@
 ---
 layout: page
-title: Memorial
+title: Dr. Vaughn M. Bryant Memorial
 ---
+
+<center>
+    <img src="assets\bryant-crop.jpg" alt="dr bryant" />
+</center>
 
 ## Service
 
