@@ -26,11 +26,11 @@ We will establish a small memorial on campus for friends, students and colleague
 
 ## Obituary
 
-Dr. Vaughn M. Bryant, II passed away Saturday, January 30th, at his home in College Station, Texas in the company of those he loved.
+Dr. Vaughn M. Bryant Jr. passed away Saturday, January 30th, at his home in College Station, Texas in the company of those he loved.
 
-Dr. Bryant was born on October, 1940 in Dallas Texas to Vaughn Motley Bryant and Marjorie Price Trafford.  He spent his early years in South America where his father worked as a reporter until his family moved back to the States and lived subsequently in New Orleans, Houston, and South Carolina.  
+Dr. Bryant was born in Dallas Texas, in October 1940 to Vaughn Motley Bryant Sr. and Marjorie Price Trafford.  He spent his early years in South America where his father worked as a reporter until his family moved back to the States and lived subsequently in New Orleans, Houston, and South Carolina.  
 
-Dr. Bryant attended the University of Texas at Austin and earned a B.A. in Geography in 1964, an M.A. in Anthropology in 1966, and a Ph.D. in Botany in 1969. He started his teaching career at the University of Washington in 1969.  In 1971, he joined the Dept of Anthropology at Texas A&M University in College Station, TX where he remained for the remainder of his academic career. 
+Dr. Bryant attended the University of Texas at Austin and earned a B.A. in Geography in 1964, a M.A. in Anthropology in 1966, and a Ph.D. in Botany in 1969. He started his teaching career at the University of Washington in 1969.  In 1971, he joined the Dept of Anthropology at Texas A&M University in College Station, TX where he remained for the remainder of his academic career. 
 
 Dr. Bryant’s prolific contributions to the fields of Palynology, Quaternary Paleoecology, Prehistoric Diets, Paleoethnobotany, Melissopalynology, Forensic Palynology, and North American Archaeology cannot be overstated.  His numerous publications, collaborations, lecture series, teaching and lecture engagements are a small testament of his dedication to his chosen science and the respect of his peers and students.
 
@@ -40,8 +40,8 @@ Dr. Bryant is survived by his wife of 57 years, Carol Ann Bryant, nee Killen, br
 
 It goes without saying that Dr. Bryant was beloved by many and will be very sorely missed by his family, peers, students, and friends. His large personality has left a void which will be felt for years to come.
 
-A scholarship will be established in Dr. Bryant's name.  In lieu of flowers, please consider contributing in his name.  Please check back for donation instructions.
+A scholarship will be established in Dr. Bryant's name.  In lieu of flowers, please consider contributing in his name.  Please check his memorial website (https://DrBryantMemorial.github.io) for instructions.
 
-A botanical memorial will be placed on campus in recognition of his lifetime contribution and tireless study in botany.  The family invites friends, students, and colleges there to reflect upon their time with Vaughn.  Please check back for location information.
+A botanical memorial will be placed on campus in recognition of his lifetime contribution and tireless study in botany.  The family invites friends, students, and colleagues to reflect upon their time with Vaughn.  Please check his memorial website (https://DrBryantMemorial.github.io) for instructions.
 
 At Dr. Bryant’s request, a service will not be held.
