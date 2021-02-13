@@ -13,7 +13,19 @@ Per the family's request, and due to COVID restrictions, a service will not be h
 
 ## Scholarship Fund
 
-A scholarship fund has been estabilished in Dr. Bryant's name.  In lieu of customary remembrances, please consider a donation in his name.  To donate by checkChecks made out to "Texas A&M Foundation" with "Vaughn Bryant" in the memo line can be mailed to: Attn: Ashley Bryant; 4223 TAMU; College Station, TX 77843.  To donate by credit card, please submit at [https://www.txamfoundation.com/give.aspx](https://www.txamfoundation.com/give.aspx).  Select "An Unlisted Account (Enter Manually)" from the dropdown and enter account number `02-650649-21033`
+A scholarship fund has been estabilished in Dr. Bryant's name.  In lieu of customary remembrances, please consider a donation in his name.  To donate by check, make checks out to "Texas A&M Foundation" with "Vaughn Bryant" in the memo line and mail to: 
+
+```
+Attn: Ashley Bryant
+4223 TAMU
+College Station, TX 77843.
+```
+
+To donate by credit card, please submit at:
+
+* [https://www.txamfoundation.com/give.aspx](https://www.txamfoundation.com/give.aspx).  
+* Select "An Unlisted Account (Enter Manually)" from the dropdown selector
+* Enter account number `02-650649-21033`
 
 ## Memorial
 
