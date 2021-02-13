@@ -11,35 +11,6 @@ title: Dr. Vaughn M. Bryant Memorial
 
 Per the family's request, and due to COVID restrictions, a service will not be held.  We will establish a small memorial on campus for friends, students and colleagues to gather and reflect on Vaughn's memory.
 
-## Scholarship Fund
-
-A scholarship fund has been estabilished in Dr. Bryant's name.  In lieu of customary remembrances, please consider a donation in his name.  To donate by check, make checks out to "Texas A&M Foundation" with "Vaughn Bryant" in the memo line and mail to: 
-
-```
-Attn: Ashley Bryant
-4223 TAMU
-College Station, TX 77843.
-```
-
-To donate by credit card, please submit at:
-
-* [https://www.txamfoundation.com/give.aspx](https://www.txamfoundation.com/give.aspx).  
-* Select "An Unlisted Account (Enter Manually)" from the dropdown selector
-* Enter account number `02-650649-21033`
-
-## Memorial
-
-We will establish a small memorial on campus for friends, students and colleagues to gather and reflect on Vaughn's memory.  Information on the location and completion will be posted here.
-
-## Social Media
-
-* [Anthropology Department Memorial Page](https://liberalarts.tamu.edu/anthropology/2021/02/03/regents-professor-vaughn-bryant-october-5-1940-january-30-2021/)
-* [Dr. Bryant's Academic Facebook Page](https://www.facebook.com/vaughn.m.bryant/)
-* [Dr. Bryant's Personal Facebook Page](https://www.facebook.com/vaughn.m.bryant.1) 
-* [Anthropology Department Facebook Post](https://www.facebook.com/tamuanth/posts/3644016012300594)
-* [Dan's Facebook Post](https://www.facebook.com/dkbryant/posts/10223706986479363)
-* [Natalie's Facebook Post](https://www.facebook.com/natalie.fisher.92/posts/3883936578330773)
-
 ## Obituary
 
 Regents Professor Dr. Vaughn Motley Bryant Jr. passed away Saturday, January 30th, at his home in College Station, Texas in the company of those he loved.
@@ -56,10 +27,49 @@ Dr. Bryant is survived by his wife of 57 years, Carol Ann Bryant, nee Killen, br
 
 It goes without saying that Dr. Bryant was beloved by many and will be very sorely missed by his family, peers, students, and friends. His large personality has left a void which will be felt for years to come.
 
-A scholarship will be established in Dr. Bryant's name.  In lieu of customary remembrances, please consider contributing in Dr. Bryant's name.  Please check his memorial website (https://DrBryantMemorial.github.io) for instructions.
+A scholarship will be established in Dr. Bryant's name.  In lieu of customary remembrances, please consider contributing in Dr. Bryant's name.  Please check his memorial website ([https://DrBryantMemorial.github.io](https://DrBryantMemorial.github.io)) for instructions.
 
-A botanical memorial will be placed on campus in recognition of his lifetime contribution and tireless study in botany.  The family invites friends, students, and colleagues to reflect upon their time with Vaughn.  Please check his memorial website (https://DrBryantMemorial.github.io) for further information.
+A botanical memorial will be placed on campus in recognition of his lifetime contribution and tireless study in botany.  The family invites friends, students, and colleagues to reflect upon their time with Vaughn.  Please check his memorial website ([https://DrBryantMemorial.github.io](https://DrBryantMemorial.github.io)) for further information.
 
 At Dr. Bryant’s request, a service will not be held.
 
-[PDF](assets\obit.pdf)
+[PDF](assets\obit.pdf) [JPG](assets\obit.jpg)
+
+## Social Media
+
+* [Anthropology Department Memorial Page](https://liberalarts.tamu.edu/anthropology/2021/02/03/regents-professor-vaughn-bryant-october-5-1940-january-30-2021/)
+* [Dr. Bryant's Academic Facebook Page](https://www.facebook.com/vaughn.m.bryant/)
+* [Dr. Bryant's Personal Facebook Page](https://www.facebook.com/vaughn.m.bryant.1) 
+* [Anthropology Department Facebook Post](https://www.facebook.com/tamuanth/posts/3644016012300594)
+* [Dan's Facebook Post](https://www.facebook.com/dkbryant/posts/10223706986479363)
+* [Natalie's Facebook Post](https://www.facebook.com/natalie.fisher.92/posts/3883936578330773)
+
+## Scholarship Fund
+
+A scholarship fund has been estabilished in Dr. Bryant's name.  In lieu of customary remembrances, please consider a donation in his name.  
+
+#### To donate by check: 
+
+* Make checks out to "Texas A&M Foundation" 
+* Enter "Vaughn Bryant" in the memo line
+* Mail checks to the following address 
+
+```
+Attn: Ashley Bryant
+4223 TAMU
+College Station, TX 77843.
+```
+
+#### To donate by credit card:
+
+* Please submit at [https://www.txamfoundation.com/give.aspx](https://www.txamfoundation.com/give.aspx).  
+* Select "An Unlisted Account (Enter Manually)" from the dropdown selector
+* Enter account number `02-650649-21033`
+
+## Botanical Memorial
+
+We will establish a small memorial on campus for friends, students and colleagues to gather and reflect on Vaughn's memory.  Information on the location and completion will be posted here.
+
+## Update or Subscibe
+
+If you want to share a memory, post, tweet or story about Vaughn, or simply to be notifed about updates to this site, please email [Dr.Bryant.Memorial@gmail.com](mailto:Dr.Bryant.Memorial@gmail.com).
