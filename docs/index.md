@@ -26,7 +26,7 @@ We will establish a small memorial on campus for friends, students and colleague
 
 ## Obituary
 
-Dr. Vaughn Motley Bryant Jr. passed away Saturday, January 30th, at his home in College Station, Texas in the company of those he loved.
+Regents Professor Dr. Vaughn Motley Bryant Jr. passed away Saturday, January 30th, at his home in College Station, Texas in the company of those he loved.
 
 Dr. Bryant was born in Dallas Texas, in October 1940 to Vaughn Motley Bryant Sr. and Marjorie Price Trafford.  He spent his early years in South America where his father worked as a reporter until his family moved back to the States and lived subsequently in New Orleans, Houston, and South Carolina.  
 
