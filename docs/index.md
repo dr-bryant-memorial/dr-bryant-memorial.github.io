@@ -36,7 +36,7 @@ Dr. Bryant’s prolific contributions to the fields of Palynology, Quaternary Pa
 
 A lifelong swimmer, Dr. Bryant swam competitively well into his 50s. His children swam competitively throughout the 70s and 80s with one child and two grandchildren swimming at the college level under scholarships.
 
-Dr. Bryant is survived by his wife of 57 years, Carol Ann Bryant, nee Killen, brothers; Don T. Bryant and James Southward, a cousin, Martha Waldorf, children; Bonnie A. Fisher and husband Bill Fisher (College Station) and their children Natalie and Clancy, Dr. Vaughn M. Bryant III and wife Katherine Bryant (Spring) and their children Mary Katherine, Samuel, Ginger, and Anna Belle, and Daniel K. Bryant and wife Shannon Steadman-Bryant (Tomball), and their children Connor and Erin.
+Dr. Bryant is survived by his wife of 57 years, Carol Ann Bryant, nee Killen, brothers; Don T. Bryant and James Southward, a cousin, Martha Waldorf, children; Bonnie A. Fisher and husband Bill Fisher (College Station) and their children Natalie and Clancy, Dr. Vaughn M. Bryant III and wife Katherine Bryant (Spring) and their children Mary Katherine, Samuel, Virginia, and Anna Belle, and Daniel K. Bryant and wife Shannon Steadman-Bryant (Tomball), and their children Connor and Erin.
 
 It goes without saying that Dr. Bryant was beloved by many and will be very sorely missed by his family, peers, students, and friends. His large personality has left a void which will be felt for years to come.
 
